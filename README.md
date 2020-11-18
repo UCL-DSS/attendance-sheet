@@ -9,3 +9,5 @@ Don't miss your training session bruh
 - [x] Stefania Juks
 - [X] Tony Wu - for second time
 - [X] Tony Wu - for the third time
+- [X] Ruth was here haha
+
