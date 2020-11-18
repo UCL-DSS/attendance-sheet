@@ -10,4 +10,4 @@ Don't miss your training session bruh
 - [X] Tony Wu - for second time
 - [X] Tony Wu - for the third time
 - [X] Ruth was here haha
-
+- [X] Savina finally figured it out
